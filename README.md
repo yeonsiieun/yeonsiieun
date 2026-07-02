@@ -1,6 +1,6 @@
 
 <p align="center"> 
-<img width="421" height="561" alt="image" src="https://github.com/user-attachments/assets/5b663540-425a-4954-a89e-cb5f47e4e003" />
+<img width="315" height="561" alt="image" src="https://github.com/user-attachments/assets/25ea25d3-9f32-474e-9382-5fc3a59f1ac7" />
 
  ⠀ ⠀⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ ⠀ Suho 　, 　I 　got 　into 　another 　fight 　.
 ㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤㅤI'm 　sorry 　.
